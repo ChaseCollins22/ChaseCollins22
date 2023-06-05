@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ChaseCollins22
+- 👋 Hi, I’m Chase Collins
 - 📫 How to reach me chasecollins1954@gmail.com
 
 <!---
